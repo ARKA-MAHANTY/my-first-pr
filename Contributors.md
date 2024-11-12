@@ -18,7 +18,7 @@ Sujal was here ^_^
 -
 -
 -hello KB was there; get ready for BGT starting 22nov 
--Aashutosh Kushwaha was here
+-ARKA  was here
 -
 --
 -
